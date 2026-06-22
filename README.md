@@ -1,2 +1,2 @@
-# creative-innovation-hub-
+# creative-innovation-hub
 This is my innovation hub 
